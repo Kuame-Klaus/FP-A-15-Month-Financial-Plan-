@@ -1,5 +1,5 @@
 #Assumptions
-![Uploading WhatsApp Image 2024-03-15 at 10.18.26 AM.jpeg…]()
+![WhatsApp Image 2024-03-15 at 10 18 26 AM](https://github.com/Kuame-Klaus/FP-A-15-Month-Financial-Plan-/assets/141528444/2f8b436c-23b7-425d-93e8-0f86f9016892)
 
 
 
@@ -9,7 +9,7 @@
 
 
 #Statement of financial position
-![Uploading WhatsApp Image 2024-03-15 at 10.19.01 AM.jpeg…]()
+![WhatsApp Image 2024-03-15 at 10 19 01 AM](https://github.com/Kuame-Klaus/FP-A-15-Month-Financial-Plan-/assets/141528444/688a79ce-ddb5-4342-9ac0-bd74262c4e23)
 
 
 
